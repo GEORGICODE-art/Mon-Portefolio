@@ -1,1 +1,1 @@
-salut !Ceci est mon portefolio contenant tous mes projets...Esperanqu'il vous plaise , bonne lecture !!!
+Salut !Ceci est mon portefolio contenant tous mes projets...Esperant qu'il vous plaise , bonne lecture !!!
